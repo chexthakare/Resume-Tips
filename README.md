@@ -4,7 +4,7 @@ Resume Tips for Freshers
 
 ******************************************************
 Resume tips
-Best Resume Writing Tips For Freshers 2013-2014
+Best Resume Writing Tips For Freshers 
 
 Here are the top and best resume writing tips for freshers / job seekers.
 
